@@ -1,4 +1,4 @@
-# Hi, I'm Amit 👋
+# Hi, I'm KUNAL
 
 🎓 B.Tech Computer Science & Engineering Student
 
